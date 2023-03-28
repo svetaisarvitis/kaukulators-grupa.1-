@@ -1,1 +1,0 @@
-# kaukulators-grupa.1-
